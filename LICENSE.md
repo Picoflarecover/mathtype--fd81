@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows script with new MathType for PC | MathType for Windows Script | scripting + graph-customization. Featuring scripting and
 
 
 
